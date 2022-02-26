@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kupko22
+- 👋 Hi, I’m kupko :)
 - 👀 I’m interested in programming, computers, english, all ten fingers writing, games and trading!
 - 🌱 I’m currently learning english and fast typing.
 - 📫 How to reach me --> email: jvalasek13@gmail.com   
